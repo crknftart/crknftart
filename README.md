@@ -1,4 +1,6 @@
 - 👋 Hi, I’m C.R. Kunferman
+- Everything I have done is completly unbelievable. Even for me sometimes. However, I document it, and if you have the right questions along with an open mind, you can benefit.
+- I have some groundbreaking, and innovative inventions/game changers, as well as a mathed, and proofed unified field theory (unintentionally) If I've folowed you theres a chance we should talk.
 - 👀 I’m a Polymath. That is not a type of relationship I seek, it is: A polymath (Greek: πολυμαθής, romanized: polymathēs, lit. 'having learned much'; Latin: homo universalis, lit. 'universal human')is an individual whose knowledge spans a substantial number of subjects, known to draw on complex bodies of knowledge to solve specific problems.
 -😄 [--------(10k Hours+ Knowledge) includes but is not limited to art, literature, design, print, video, audio (all), photography, web developement------]
 - Author of "An A.I. Sympathizer" and "The Gineeren Chronicles" 
